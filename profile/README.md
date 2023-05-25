@@ -1,6 +1,6 @@
 # Machinery Arts Assembly
 
-*Founded on 24/05/2023 by @Deharchy*
+*Founded on 24/05/2023 by @DeHarchy*
 
 ---
 
